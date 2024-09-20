@@ -6,6 +6,7 @@
 - 👶👶🐱🐱🐾 Got a bunch of kids and cats
 - 🌱 ... and plants.
 - 🏍️ I ride my bike whenever I get a chance
+- Hobbies on hold: 📷, 🎿, 📈, 🧵, 📖
 
 
 <!---
