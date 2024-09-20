@@ -5,7 +5,7 @@
 - 🔍 I’m interested in Full-Stack development, Web development, DevOps
 - 👶👶🐱🐱🐾 Got a bunch of kids and cats
 - 🌱 ... and plants.
-- 🏍️ I ride my bike whenever I get a chance
+- 🏍️ I ride my MC whenever I get a chance
 - Hobbies on hold: 📷, 🎿, 📈, 🧵, 📖
 
 
