@@ -6,7 +6,7 @@
 - 👶👶🐱🐱🐾 Got a bunch of kids and cats
 - 🌱 ... and plants.
 - 🏍️ I ride my MC whenever I get a chance
-- Hobbies on hold: 📷, 🎿, 📈, 🧵, 📖, 🥾
+- Interests on hold: 📷, 🎿, 📈, 🧵, 📖, 🥾
 - I want to try: ⛳, 
 
 
