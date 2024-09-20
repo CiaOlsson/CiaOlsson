@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Cecilia/Cissi
 - 📚 I love to learn.
-- 💡 I’m currently learning C#
+- 💡 I’m currently learning C#, Powershell + git, Azure
 - 💻 Studying Software Development | .NET, C#, JavaScript, React 
 - 🔍 I’m interested in Full-Stack development, Web development, DevOps
 - 👶👶🐱🐱🐾 Got a bunch of kids and cats
